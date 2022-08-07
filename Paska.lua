@@ -1,1 +1,0 @@
-moromoro mitä homo paska
